@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "As pessoas mais desinteressantes do mundo"
+title: "As pessoas mais sem graça do mundo"
 date: 2026-06-24
 ---
 
